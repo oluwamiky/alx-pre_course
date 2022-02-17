@@ -24,4 +24,3 @@ Engineering remains one of the highest paid and most sought-after professions, w
 Protection from market forces
 For the professional engineer, there are many opportunities, as they can work for a company or set up their own business. This flexibility can serve as a hedge against industry downsizing or outsourcing during their career.
 
-Translated with www.DeepL.com/Translator (free version)
